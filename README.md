@@ -2,4 +2,6 @@ pis4
 ====
 
 vjezba
-Vježba 3 -  distribuirani sustavi vizioniranja
+Vjeï¿½ba 3 -  distribuirani sustavi vizioniranja
+
+a jeeee sad!!!
